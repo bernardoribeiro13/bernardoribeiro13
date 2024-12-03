@@ -7,5 +7,3 @@ My name is Bernardo Ribeiro and I study Computer Science on the Federal Universi
 📫 How to reach me:  https://www.linkedin.com/in/bernardo-ferreira-de-ribeiro-a37b51185 or at ufribeiro13@gmail.com
 
 😄 Pronouns: He/Him
-
-⚡ Fun fact: I have 5 cats and my favorite band is The Mechanisms
